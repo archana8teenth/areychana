@@ -7,7 +7,7 @@
 - 👀 I love everything tech
 - 🌱 I’m currently working on something cool 😎
 - 💭 Ask me about...anything!
-- 📫 How to reach me ... archana8teenth@gmail.com
+- 📫 How to reach me ... areychana@gmail.com
 
 <!---
 areychana/areychana is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
