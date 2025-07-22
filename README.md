@@ -1,4 +1,4 @@
-[![An image of @areychana's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/areychana)](https://holopin.io/@areychana)
+[![An image of @areychana's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/areychana)](https://holopin.io/@areychana) 
  
  👋 Hey there! Chana here!!
  
